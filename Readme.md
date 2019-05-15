@@ -9,3 +9,7 @@ Eu to mucho doido...quero mais café
 Facebook tem memes Instagran nao......
 
 Alteração do dia 15 continuando o curso show
+
+
+nao era pra escrever isso
+
